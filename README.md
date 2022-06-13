@@ -1,7 +1,7 @@
 どもども。
 Minecraft等で遊んでる人です。
 基本的にマイクラのワールドやデータパックを配布しています。
-連絡はTwitterへ。
+連絡はTwitterへ。　https://twitter.com/Shisui256
 
 ### Minecraft配布マップ一覧
 #### Prismarine Square
